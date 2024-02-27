@@ -1,2 +1,2 @@
-Murgu Cristian 
+Murgu Cristian,
 Hritcu Denis-Gheorghe
